@@ -1,4 +1,4 @@
-# 
+# Little Snitch for macOS best Plugin: identity-theft-protection & dark-web-monitoring is the best Little Snitch for macOS plugin, featuring identity-theft-protection and
 
 
 
